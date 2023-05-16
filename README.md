@@ -1,2 +1,2 @@
 # Wwtjechie23
-werk week tjechie mla 23
+in deze repo schrijf ik een reisverslag van mijn werkweek
